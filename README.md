@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **mmbogamiriam2@gmail.com**
 
-- 📄 Know about my experiences [I currently work at Microsoft](I currently work at Microsoft)
+- 📄 Know about my experiences I currently work at Microsoft.
 
 - ⚡ Fun fact **I am dancer and I love learning new choreographies.**
 
