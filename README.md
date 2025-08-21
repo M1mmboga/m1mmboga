@@ -12,7 +12,7 @@
 
 - 📄 I currently work at Microsoft.
 
-- ⚡ Fun fact **I am dancer and I love learning new choreographies.**
+- ⚡ Fun fact **I love learning about new travel destinations, feel free to recommend magical places to visit .**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
